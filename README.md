@@ -1,4 +1,5 @@
-## Hi there 👋
+## Hi, Im Elina Pachhai
+# Im an aspiring Computer Science student. 
 
 <!--
 **Elina-Pachhai/Elina-Pachhai** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
