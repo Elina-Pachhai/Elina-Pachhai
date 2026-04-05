@@ -13,4 +13,4 @@ I’m a passionate computer science student with over **3 years of programming e
 
 ## 🌐 Connect With Me
 - [LinkedIn](https://linkedin.com/in/elinapac)  
-- [Email](mailto:Elina.pachhao@ucalgary.ca)  
+- [Email](mailto:eppachhai22@gmail.com)  
