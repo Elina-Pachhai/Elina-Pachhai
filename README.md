@@ -1,4 +1,4 @@
-## Hi, Im Elina Pachhai | 🎓 3rd Year **Computer Science Student** at the University of Calgary
+## Hi, Im Elina Pachhai | 🎓 4rd Year **Computer Science Student** at the University of Calgary
 
 
 ## About Me
